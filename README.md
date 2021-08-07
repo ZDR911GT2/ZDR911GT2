@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ZDR911GT2
-- 👀 I’m interested in ...programming OFFROAD
+- 👀 I’m interested in ... OFFROAD
 - 🌱 I’m currently learning ...programming
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
